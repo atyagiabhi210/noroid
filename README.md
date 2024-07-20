@@ -1,4 +1,4 @@
 # noroid
 
-A new way age of productivity unlocks now!
+A new age of productivity unlocks now!
 
